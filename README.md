@@ -1,0 +1,2 @@
+# elevator-fivem
+IM NOT THE OWNER OF THOSES SCRIPTS
